@@ -3,4 +3,7 @@ We are trying to enhance our development skill with this ecom project. If you in
 
 Thanks.
 
-Uður added this comment.
+
+Thanks to All.
+
+UÃ°ur added this comment.
